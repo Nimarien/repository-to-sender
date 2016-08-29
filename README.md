@@ -1,4 +1,4 @@
 # repository-to-sender
 test
 
-Eat a bag of shit, cuntface!
+Eat a bag of shit!
